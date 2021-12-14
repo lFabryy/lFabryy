@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @lFabryy
+- 👀 I’m interested in Discord Bots
+- 📫 How to reach me discord // bebellaco3540
